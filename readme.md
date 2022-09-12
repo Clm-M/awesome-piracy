@@ -1093,6 +1093,7 @@ premium services
 - [My Digital Life Forums](https://forums.mydigitallife.net/) Popular forum for modded/cracked software and apps
 - [Pro Design Tools](https://prodesigntools.com) Site focused on Adobe Development including cracked software and ebooks.
 - [ShareAppsCrack](https://shareappscrack.com/) Website with a plethora of development tools and engineering-focused software, including video tutorials, and some ebooks.
+- [Team RCV](https://team-rcv.xyz/) French site for Adobe and Office cracked for Windows and Mac with good tutorials, good support on their discord
 
 ### Adobe CC
 - [Adobe CC 2019/2020 AIO Patcher](https://cracked.to/Thread-Cracked-CRACK-ADOBE-CC-2019-2020-GENP-V2-7) Latest Working All-In-One Patcher for all Adobe Creative Cloud 2019/2020 Applications (Windows)
